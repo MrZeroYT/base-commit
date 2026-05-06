@@ -26,3 +26,4 @@ pot
 jug
 hua
 ike
+lk
