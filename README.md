@@ -10,3 +10,4 @@ now
 mna
 go
 han
+guj
