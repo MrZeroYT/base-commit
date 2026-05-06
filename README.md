@@ -22,3 +22,4 @@ kig
 ioa
 bank
 now
+pot
