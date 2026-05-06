@@ -13,3 +13,4 @@ han
 guj
 man
 hau
+yug
