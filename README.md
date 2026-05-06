@@ -25,3 +25,4 @@ now
 pot
 jug
 hua
+ike
