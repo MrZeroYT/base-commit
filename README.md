@@ -11,3 +11,4 @@ mna
 go
 han
 guj
+man
