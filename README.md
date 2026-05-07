@@ -18,7 +18,7 @@ hag hey
 bag ven
 you
 bah fan
-kig
+kig rey
 ioa cen
 bank job
 now
