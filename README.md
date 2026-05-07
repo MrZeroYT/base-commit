@@ -10,7 +10,7 @@ lo
 mna
 go
 han
-guj
+guj buy
 man
 hau
 yug
