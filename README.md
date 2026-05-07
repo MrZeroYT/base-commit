@@ -22,7 +22,7 @@ kig
 ioa cen
 bank job
 now
-pot
+pot hug
 jug
 hua
 ike
