@@ -8,7 +8,7 @@ just go
 now
 lo
 mna
-go
+go hyu
 han
 guj buy
 man
