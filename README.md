@@ -15,7 +15,7 @@ man
 hau
 yug
 hag
-bag
+bag ven
 you
 bah
 kig
