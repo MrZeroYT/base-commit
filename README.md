@@ -41,3 +41,4 @@ nun
 kio
 jju
 hyu
+kip
