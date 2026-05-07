@@ -13,7 +13,7 @@ han jug
 guj buy
 man
 hau buy
-yug
+yug bnm
 hag
 bag ven
 you
