@@ -12,7 +12,7 @@ go hyu
 han
 guj buy
 man
-hau
+hau buy
 yug
 hag
 bag ven
