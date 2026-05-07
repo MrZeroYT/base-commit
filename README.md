@@ -6,7 +6,7 @@ go and talk
 to monica
 just go
 now you
-lo
+lo boi
 mna
 go hyu
 han
