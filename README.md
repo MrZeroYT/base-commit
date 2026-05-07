@@ -19,7 +19,7 @@ bag ven
 you
 bah
 kig
-ioa
+ioa cen
 bank
 now
 pot
