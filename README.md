@@ -9,7 +9,7 @@ now you
 lo boi
 mna try
 go hyu
-han
+han jug
 guj buy
 man
 hau buy
