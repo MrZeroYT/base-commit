@@ -11,7 +11,7 @@ mna try
 go hyu
 han jug
 guj buy
-man
+man nam
 hau buy
 yug bnm
 hag hey
