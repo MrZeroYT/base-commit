@@ -36,7 +36,7 @@ guy guy
 lop ase
 kilp pen
 mjo jou
-fot
+fot toy
 nun
 kio
 jju
