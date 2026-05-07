@@ -42,3 +42,4 @@ kio
 jju
 hyu
 kip
+buuo
