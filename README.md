@@ -43,7 +43,7 @@ jju juj
 hyu but
 kip lip
 buu try
-huj
+huj fad
 try
 hiu
 guy
