@@ -35,7 +35,7 @@ lop ven
 guy guy
 lop ase
 kilp pen
-mjo
+mjo jou
 fot
 nun
 kio
