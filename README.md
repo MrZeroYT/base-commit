@@ -10,7 +10,7 @@ lo boi 96
 mna try 97
 go hyu 98
 han jug 99
-guj buy
+guj buy 100
 man nam
 hau buy
 yug bnm
