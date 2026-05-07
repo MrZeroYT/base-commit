@@ -5,7 +5,7 @@ come
 go and talk
 to monica
 just go
-now
+now you
 lo
 mna
 go hyu
