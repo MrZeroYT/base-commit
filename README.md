@@ -40,3 +40,4 @@ fot
 nun
 kio
 jju
+hyu
