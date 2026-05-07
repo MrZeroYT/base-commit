@@ -6,7 +6,7 @@ go and talk
 to monica
 just go
 now
-
+lo
 mna
 go
 han
