@@ -25,7 +25,7 @@ now
 pot hug
 jug
 hua
-ike
+ike nvb
 lk
 low
 lop
