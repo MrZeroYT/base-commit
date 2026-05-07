@@ -41,7 +41,7 @@ nun muy
 kio nap
 jju juj
 hyu but
-kip
+kip lip
 buuo
 huj
 try
