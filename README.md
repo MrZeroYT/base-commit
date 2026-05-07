@@ -26,7 +26,7 @@ pot hug
 jug mns
 hua lop
 ike nvb
-lk
+lk per
 low
 lop lop
 kit
