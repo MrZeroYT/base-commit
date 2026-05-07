@@ -38,7 +38,7 @@ kilp pen
 mjo jou
 fot toy
 nun muy
-kio
+kio nap
 jju
 hyu
 kip
