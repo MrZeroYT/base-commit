@@ -8,7 +8,7 @@ just go 94
 now you 95
 lo boi 96
 mna try 97
-go hyu
+go hyu 98
 han jug
 guj buy
 man nam
