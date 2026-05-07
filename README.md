@@ -37,7 +37,7 @@ lop ase
 kilp pen
 mjo jou
 fot toy
-nun
+nun muy
 kio
 jju
 hyu
