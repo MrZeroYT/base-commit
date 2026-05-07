@@ -6,7 +6,7 @@ go and talk 92
 to monica 93
 just go 94
 now you 95
-lo boi
+lo boi 96
 mna try
 go hyu
 han jug
