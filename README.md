@@ -39,7 +39,7 @@ mjo jou
 fot toy
 nun muy
 kio nap
-jju
+jju juj
 hyu
 kip
 buuo
