@@ -7,7 +7,7 @@ to monica
 just go
 now you
 lo boi
-mna
+mna try
 go hyu
 han
 guj buy
