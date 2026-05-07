@@ -14,7 +14,7 @@ guj buy
 man
 hau buy
 yug bnm
-hag
+hag hey
 bag ven
 you
 bah fan
