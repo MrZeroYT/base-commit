@@ -40,7 +40,7 @@ fot toy
 nun muy
 kio nap
 jju juj
-hyu
+hyu but
 kip
 buuo
 huj
