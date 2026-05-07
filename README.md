@@ -42,7 +42,7 @@ kio nap
 jju juj
 hyu but
 kip lip
-buuo
+buu try
 huj
 try
 hiu
