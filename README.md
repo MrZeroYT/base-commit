@@ -16,7 +16,7 @@ hau buy
 yug bnm
 hag hey
 bag ven
-you
+you hyi
 bah fan
 kig rey
 ioa cen
