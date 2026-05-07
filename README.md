@@ -24,7 +24,7 @@ bank job
 now guy
 pot hug
 jug mns
-hua
+hua lop
 ike nvb
 lk
 low
