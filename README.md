@@ -11,7 +11,7 @@ mna try 97
 go hyu 98
 han jug 99
 guj buy 100
-man nam
+man nam done
 hau buy
 yug bnm
 hag hey
